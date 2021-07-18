@@ -1,5 +1,5 @@
 
-- 👀 I’m interested in Sustainable Design
+- 👀 I’m all for Sustainable Design
 - 📫 connect via 075shruti@gmail.com
 
 <!---
